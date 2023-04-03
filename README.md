@@ -5,6 +5,7 @@
 * Anu
 * Anu
 * Goblok jangan dibaca 🗿
+<!-- yang liat orang tolol-->
 
 ## Prestasi
 * Clone repo orang terus hapus credits 🙀
